@@ -1,16 +1,23 @@
-## Hi there 👋
+seja bem vindo ao meu perfil 
 
-<!--
-**Histefani13/Histefani13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**histefani**https://media.tenor.com/M4hf23tX23QAAAAM/byuntear-coringa.gif
 
-Here are some ideas to get you started:
+estou estudando na [alura](https://www.alura.com.br/?srsltid=AfmBOoo6PqWIki6YzUtvo3nmVkV09n2wDc4-Gi1IYbjD0s0Ksc1OXXz1)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+gosto muito de animais 
+
+também gosto muito de comer 
+
+gosto de bater perna amo andar 
+
+gosto de mexer no celular 
+
+nos tempos vagos gosto de fuma pod 
+
+gosto de beber copão 
+
+pretendo ser advogada criminalista
+
+![](https://media.tenor.com/HxVI1XeewmIAAAAM/mc-hariel-haridade.gif)
+
+![](https://media.tenor.com/M4hf23tX23QAAAAM/byuntear-coringa.gif)
